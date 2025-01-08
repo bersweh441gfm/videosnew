@@ -1,10 +1,18 @@
 En los últimos días, la influencer colombiana Juliana Duque se ha convertido en tendencia debido a la filtración de videos íntimos, lo que generó un notable incremento en las búsquedas relacionadas con su vida personal, en particular sobre su biografía y su edad.
 
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
+
 Juliana Duque: quién es y su biografía en Wikipedia
 Juliana Duque, hoy de 15 años de edad, según lo reveló ella, nació en 2009 en Colombia. Es conocida por su presencia en plataformas como TikTok, donde publica videos que combinan música de fondo, principalmente de reguetón, con anécdotas o bromas. En algunos clips aparece sola, mientras que en otros está acompañada por amigos, siempre manteniendo un tono ligero y juvenil.
 
 La viralización de los videos íntimos comenzó en foros y grupos cerrados, pero se expandió rápidamente a plataformas públicas. Foto: Tikok Juliana Duque
-Además, la influencer ha mostrado ser aficionada al fútbol, luciendo camisetas de equipos como el Real Madrid, Manchester City, Atlético Nacional, y las selecciones de Colombia y Brasil en varios de sus videos. Este detalle la conecta con una comunidad que comparte esta pasión deportiva.
 
 Videos virales de la colombiana Juliana Duque
 Los videos íntimos, que tienen una duración de entre uno y dos minutos, muestran momentos de carácter sexual protagonizados por Juliana Duque junto a un hombre, quien presuntamente sería Santiago Taborda, aunque su rostro no es visible.
