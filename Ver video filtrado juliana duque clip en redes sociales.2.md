@@ -1,24 +1,23 @@
-Desde hace varias semanas, las redes sociales han sido el escenario de un intenso debate en torno a un supuesto video de la influencer Juliana Duque. Este clip, que se ha vuelto objeto de numerosas especulaciones y comentarios, ha captado la atención de miles de usuarios, quienes no han dudado en sumarse a la búsqueda del material.
+En los últimos días, la influencer colombiana Juliana Duque se ha convertido en tendencia debido a la filtración de videos íntimos, lo que generó un notable incremento en las búsquedas relacionadas con su vida personal, en particular sobre su biografía y su edad.
 
-Este contenido ha generado una ola de especulaciones y comentarios, atrayendo la atención de miles de usuarios interesados en encontrar el material.
+Juliana Duque: quién es y su biografía en Wikipedia
+Juliana Duque, hoy de 15 años de edad, según lo reveló ella, nació en 2009 en Colombia. Es conocida por su presencia en plataformas como TikTok, donde publica videos que combinan música de fondo, principalmente de reguetón, con anécdotas o bromas. En algunos clips aparece sola, mientras que en otros está acompañada por amigos, siempre manteniendo un tono ligero y juvenil.
 
-En este contexto digital, el término 'rayos' se ha convertido en una palabra clave utilizada por los internautas para intentar localizar el polémico video. Esta estrategia ha propiciado un efecto viral, aumentando la interacción y el debate en diferentes plataformas como Twitter, TikTok y Facebook.
+La viralización de los videos íntimos comenzó en foros y grupos cerrados, pero se expandió rápidamente a plataformas públicas. Foto: Tikok Juliana Duque
+Además, la influencer ha mostrado ser aficionada al fútbol, luciendo camisetas de equipos como el Real Madrid, Manchester City, Atlético Nacional, y las selecciones de Colombia y Brasil en varios de sus videos. Este detalle la conecta con una comunidad que comparte esta pasión deportiva.
 
-¿Cuál es el video 'rayos' de Juliana Duque?
-A principios de diciembre, las redes sociales se vieron sacudidas por la filtración de varios videos de Julián Duque, una joven influencer colombiana. En estas grabaciones, Duque se encontraba en un encuentro íntimo, y uno de los videos reveló un momento particularmente delicado: el preservativo del individuo que estaba grabando se rompió, lo que llevó a la joven a expresar su sorpresa con un comentario que se volvió viral: "rayos".
+Videos virales de la colombiana Juliana Duque
+Los videos íntimos, que tienen una duración de entre uno y dos minutos, muestran momentos de carácter sexual protagonizados por Juliana Duque junto a un hombre, quien presuntamente sería Santiago Taborda, aunque su rostro no es visible.
 
-Desde entonces, el audio de este video ha circulado ampliamente en las redes, siendo utilizado por muchos internautas en situaciones humorísticas.
-
-No obstante, es importante señalar que esta exposición pública ha representado un desafío significativo para Duque, quien se ha visto obligada a enfrentar las consecuencias de la filtración de su imagen personal.
+Estos contenidos fueron compartidos inicialmente en grupos cerrados de Telegram y foros anónimos, pero pronto llegaron a plataformas más visibles como Twitter y TikTok, donde se volvieron virales.
 
 
-En respuesta a este incidente, la influencer anunció que había tomado acciones legales para abordar la violación de su privacidad. Sin embargo, hasta la fecha, no ha habido novedades sobre el avance de su caso.
+En estas plataformas, numerosos usuarios comenzaron a dejar enlaces hacia los videos en publicaciones y comentarios, facilitando la distribución del material.
 
-Julián Duque no ha proporcionado actualizaciones ni detalles adicionales, lo que deja a sus seguidores y al público en general con más preguntas que respuestas sobre el estado de esta complicada situación.
+Nuevo video viral de Juliana Duque: su reacción en TikTok
+Juliana rompió el silencio a través de un video en su cuenta de TikTok (@julianaduqueev), donde expresó su dolor y compartió detalles sobre lo sucedido. Explicó que los videos datan de 2022 de una relación pasada, cuando tenía apenas 13 años, y que fue víctima de manipulación y amenazas por parte de su entonces pareja, Santiago Taborda. Según su relato, nunca tuvo control sobre las grabaciones, que fueron utilizadas en su contra.
 
-A continuación este es el audio del video viral de Juliana Duque titulado como 'rayos' que ha causado revuelo en redes sociales.
 
-¿El video 'rayos' de Juliana Duque circula en Facebook?
-Inicialmente, usuarios en diversas plataformas señalaron que el video comprometedor se encontraba disponible en Facebook. Sin embargo, la plataforma eliminó rápidamente el contenido debido a la naturaleza delicada y comprometida del metraje. Esto generó un debate adicional sobre la responsabilidad de los usuarios al compartir material sensible.
+En su mensaje, la influencer denunció las agresiones que ha recibido desde la filtración, incluyendo comentarios ofensivos en sus redes sociales. Por esta razón, optó por restringir el acceso a su perfil de Instagram y desactivar los comentarios en TikTok. Estas medidas buscaban proteger su salud mental en un momento de extrema vulnerabilidad.
 
-Es importante recordar que la difusión de videos íntimos sin el consentimiento de los involucrados constituye un delito grave en la mayoría de los países. Las leyes en torno a estos casos suelen contemplar penas de cárcel y multas significativas para quienes compartan o posean este tipo de contenido.
+Juliana también anunció que está tomando acciones legales contra los responsables de la filtración y que busca generar conciencia sobre el impacto devastador de este tipo de violencia digital. En sus propias palabras, afirmó: “No soy la primera a la que le pasa esto, pero espero ser la última. Nadie merece vivir lo que yo estoy viviendo”.dsgv
